@@ -1,5 +1,6 @@
 # TOVR
-Switch テイルズ オブ ヴェスペリア REMASTER SXOS Cheat<br/>
+Switch テイルズ オブ ヴェスペリア REMASTER SXOS チートコード<br/>
+Switch Tales of Vesperia REMASTER SXOS Cheat<br/>
 Switch 薄暮传说 REMASTER SXOS 金手指
 
 TID:01002C0008E52000<br/>
