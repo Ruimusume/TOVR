@@ -1,4 +1,4 @@
-# TOVR
+# Switch Tales of Vesperia REMASTER SXOS Cheat
 Switch テイルズ オブ ヴェスペリア REMASTER SXOS チートコード<br/>
 Switch Tales of Vesperia REMASTER SXOS Cheat<br/>
 Switch 薄暮传说 REMASTER SXOS 金手指
