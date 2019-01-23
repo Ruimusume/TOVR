@@ -1,10 +1,10 @@
-# Switch Tales of Vesperia: Definitive Edition Ver.1.0.1 SXOS Cheat
+# Switch Tales of Vesperia: Definitive Edition Ver.1.0.1 SXOS Cheats
 by 露易娘 Ruimusume</br>
 日站博客：http://ruimusume.blog.jp/</br>
 微博：https://weibo.com/ruisan</br>
 
 Switch テイルズ オブ ヴェスペリア REMASTER SXOS チートコード<br/>
-Switch Tales of Vesperia: Definitive Edition SXOS Cheat<br/>
+Switch Tales of Vesperia: Definitive Edition SXOS Cheats<br/>
 Switch 薄暮传说 REMASTER SXOS 金手指
 
 TID:01002C0008E52000<br/>
