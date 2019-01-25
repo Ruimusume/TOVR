@@ -6,7 +6,7 @@ by 露易娘 Ruimusume</br>
 Switch テイルズ オブ ヴェスペリア REMASTER SXOS チートコード<br/>
 Switch Tales of Vesperia: Definitive Edition SXOS Cheats<br/>
 Switch 薄暮传说 REMASTER SXOS 金手指
-
+<img src="[img]https://i.imgur.com/HkoJKCP.jpg[/img]" alt="[img]https://i.imgur.com/HkoJKCP.jpg[/img]"/>
 TID:01002C0008E52000<br/>
 BID:9e812d3826d6e7ac
 
