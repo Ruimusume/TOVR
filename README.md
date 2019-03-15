@@ -1,4 +1,4 @@
-# Switch Tales of Vesperia: Definitive Edition Ver.1.0.1 SXOS Cheats
+# Switch Tales of Vesperia: Definitive Edition Ver.1.0.2 SXOS Cheats
 by 露易娘 Ruimusume</br>
 日站博客：http://ruimusume.blog.jp/</br>
 微博：https://weibo.com/ruisan</br>
